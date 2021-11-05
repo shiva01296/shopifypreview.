@@ -1,0 +1,2 @@
+# shopifypreview.
+https://shopifypreview.com
